@@ -10,3 +10,5 @@ So yea, I don't despise humble beginnings, I know it's long overdue that i advan
 A journey of a thousand miles begins with one step and this here is one of my 'one step'...
 
 I'm excited. 17 May 2019
+
+Joanita Software Developer
